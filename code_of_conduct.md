@@ -6,7 +6,6 @@ Be kind to others. Do not insult or put down other participants whether they be 
 
 Attendees violating these rules may be warned and or asked to no longer attend Hack The People events, mentorship program, and programming clubs without a refund at the sole discretion of the Hack The People officers, board, and staff.
 Thank you for helping make this a welcoming, friendly organization for all.
-Contact Information
 
 ## Reporting Procedures
 
